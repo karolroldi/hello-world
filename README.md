@@ -1,5 +1,4 @@
 # hello-world
 
-hello!!
-My nickname is Roldi! I want to be king of fucking everything. Let me do this.
-You can be with me or against me! :)
+Hello!
+My name is Roldi. Say hello to Roldi! I want join to your community and be one of you.
